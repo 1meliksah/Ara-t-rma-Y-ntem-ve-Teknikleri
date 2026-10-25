@@ -1,2 +1,2 @@
-# Ara-t-rma-Y-ntem-ve-Teknikleri
+# Arastirma-Yontem-ve-Teknikleri
 Araştırma Yöntem ve Teknikleri dersindeki çalışmalarım
